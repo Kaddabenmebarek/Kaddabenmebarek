@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kaddabenmebarek
+- 👋 Hi, I’m Kadda Benmebarek
 - 📫 How to reach me
 - https://www.linkedin.com/in/kadda-benmebarek/
 
